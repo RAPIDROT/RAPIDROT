@@ -1,4 +1,4 @@
-<center> <img src="https://github.com/RAPIDROT/RAPIDROT/blob/main/tumblr_edb5a919ad5ae4df37aa90550bb0bd8d_2e252f1a_2048.png?raw=true" alt="me:3" width="1000" height="600">
+
 <p align="center"><img src="https://github.com/RAPIDROT/RAPIDROT/blob/main/IMG_7258.gif?raw=true" alt="me:3" width="300" height="600"><center> 
 
 <p align="center">hi! im travis . previously snuffy, 
