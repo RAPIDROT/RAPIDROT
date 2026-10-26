@@ -1,5 +1,5 @@
 # ────୨ৎ────
-<img src="https://github.com/RAPIDROT/RAPIDROT/blob/main/IMG_7258.gif?raw=true" alt="me:3" width="300" height="400">
+<img src="https://github.com/RAPIDROT/RAPIDROT/blob/main/IMG_7258.gif?raw=true" alt="me:3" width="300" height="600">
 
 hi! im travis . previously snuffy, 
 he/her
