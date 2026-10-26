@@ -1,5 +1,5 @@
 # ────୨ৎ────
-<img src="img_girl.jpg" alt="Girl in a jacket" width="500" height="600">
+<img src="https://github.com/RAPIDROT/RAPIDROT/blob/main/IMG_7258.gif?raw=true" alt="me:3" width="300" height="300">
 
 hi! im travis . previously snuffy, 
 he/her
