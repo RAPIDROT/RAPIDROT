@@ -1,16 +1,22 @@
-## Hi there 👋
+# ────୨ৎ────
 
-<!--
-**RAPIDROT/RAPIDROT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+hi! im travis . previously snuffy, 
+he/her
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ 
+╰┈➤  now playing [***hey fucker - kitcaliber***](https://youtu.be/m0hSqSBU1kw?list=RDm0hSqSBU1kw)  ✰  speedcore & digital hardcore enthusiast
+#
+**★ c+h is always on! just don't cuddle when our name is set to dni.**
+
+**★ we are iffy on some doubles, please do not ask why. we dont owe you an answer**
+
+**★ we are a polyfragmented osdd1a system**
+
+< camryn, devin, rusty and skeet 3
+#
+# ────୨ৎ────
+
+follow these and we should be good!
+
+
