@@ -6,12 +6,10 @@ he/her</p>
  
 <p align="center">╰┈➤  now playing make you cry - title fight  ✰  speedcore & digital hardcore enthusiast
 #
-<p align="center">**★ c+h is always on! just don't cuddle when our name is set to dni.**
-
-<p align="center">**★ we are iffy on some doubles, please do not ask why. we dont owe you an answer**
-
-<p align="center">**★ we are a polyfragmented osdd1a system**
-
+ 
+<p align="center">★ c+h is always on! just don't cuddle when our name is set to dni.
+<p align="center">★ we are iffy on some doubles, please do not ask why. we dont owe you an answer
+<p align="center">★ we are a polyfragmented osdd1a system
 <p align="center">< camryn, devin, rusty and skeet 3
 
 
